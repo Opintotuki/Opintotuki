@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Opintotuki
 - 👀 I’m interested in Trappin'
 - 🌱 I’m currently learning Trappin'
-- 💞️ I’m looking to bag chasing 
+- 💞️ registered flex offender 💸💸
 - 📫 How to reach me? kik messenger
 
 <!---
